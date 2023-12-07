@@ -1,0 +1,1 @@
+- [The 3 Year AI Reset: How To Get Ahead While Others Lose Their Jobs (Prepare Now) | Emad Mostaque](https://youtu.be/Se91Pn3xxSs)
