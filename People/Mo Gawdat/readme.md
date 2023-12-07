@@ -1,1 +1,2 @@
 - [EMERGENCY EPISODE: Ex-Google Officer Finally Speaks Out On The Dangers Of AI! - Mo Gawdat | E252](https://youtu.be/bk-nQ7HF6k4)
+- [MEGATHREAT: Why AI Is So Dangerous & How It Could Destroy Humanity | Mo Gawdat](https://youtu.be/itY6VWpdECc)
